@@ -6,4 +6,4 @@
 
 ## My [Linkedin](https://www.linkedin.com/in/gabriel-m-7182bb1b6/https://www.linkedin.com/in/gabriel-m-7182bb1b6/)💼
 
-*PT* Born in Chaves, Portugal
+ᴘᴛ Born in Chaves, Portugal
