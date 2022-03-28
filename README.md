@@ -1,8 +1,8 @@
 # Hey, I’m Gabriel Meirinho 👋
 
 - Student of Software Engineering
-- Learning Front-End Development☕
-- Currently in a Web Developer Bootcamp📚
+- Learning Back-End Development☕
+- Currently studying C++📚
 - Starting new projects🚀
 
 ## My [Linkedin](https://www.linkedin.com/in/gabriel-m-7182bb1b6/)💼
